@@ -1,1 +1,1 @@
-https://interstellar-v4.imbubbo.repl.com
+https://howmanycharacterscanthisdomainbeeeeeeeeeeeeeeeeeeeeeee.up.railway.app
