@@ -1,1 +1,1 @@
-https://howmanycharacterscanthisdomainbeeeeeeeeeeeeeeeeeeeeeee.up.railway.app
+https://interstellarofficial.gq
